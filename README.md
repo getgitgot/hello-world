@@ -1,2 +1,5 @@
 # hello-world
-what's a repository? guess ill find out
+
+sans undertale
+
+Eyyyy. I'm a great memester of the highest level with sans undertale.
